@@ -1,0 +1,16 @@
+---
+id: 780
+title: To Promote Online Safety For Children
+date: 2010-12-13T08:47:57+00:00
+author: admin
+layout: post
+guid: http://www.ascendpartnership.net/?p=780
+permalink: /2010/12/13/to-promote-online-safety-for-children/
+categories:
+  - General
+---
+Allowing your children to surf the Internet is a great learning experience. Children online have access to resources from all over the world as no generation before them has. Unfortunately, they are also exposed to people all over the world – both good and bad. What can parents do to protect children from online dangers? Keeping an open line of communication with children is the most important step towards online safety. By talking to your children, you establish yourself as a trustworthy confidant and children feel they can come to you with anything. You’ve probably already cautioned your children against talking to strangers. Remind them that the same rule applies to the Internet as well. Calmly remind them to not give out their full name, address or telephone number over the Internet. If they already have given out information, ask them about the situation. Is it someone from a nearby school or out of state? Ask them if the person has mentioned meeting, calling or sent pictures? If you have good communication with your child and they trust you, they should be willing to share this information if you ask with genuine interest. Think of what you are going to ask and how before you do it to avoid asking in a confrontational way.
+
+Also, don’t be afraid to discuss with your children dangers they may encounter on the Internet. Children like to be treated with respect just like adults, so be open and honest with them about the possible Internet dangers. Respectable news sources, such as Dateline and People magazine, have done features on Internet predators that form online relationships with children. Don’t be afraid to share these resources with your children, especially teens. Tell them, in an age appropriate way, that there are adults who prey on children online and often send them to inappropriate web site addresses or even send them pornography. Listen to how your children respond. They may already know more about online safety than you think they do.
+
+Many children are exposed to computer usage at a young age now, but some don’t know the full potential of the Internet. Many think it is simply a place to meet and chat with others. While that can be one rewarding aspect, you can also teach your children about other online resources. If they are interested in history, show them the Smithsonian home page. If you have a teen looking to attend college, point out that sites such as Yahoo have an extensive listing of colleges all around the country that they can visit online. If they love sports, look up the URL to their favorite team’s home page. Make the Internet fun for your children and share in these experiences with them. Online crimes may be impossible to eliminate completely, but parental involvement in their children’s online activities can help decrease them.

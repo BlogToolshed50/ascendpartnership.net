@@ -1,0 +1,16 @@
+---
+id: 1434
+title: Finding Your Way
+date: 2013-04-22T05:14:00+00:00
+author: admin
+layout: post
+guid: http://www.ascendpartnership.net/?p=1434
+permalink: /2013/04/22/finding-your-way/
+categories:
+  - General
+---
+May today there be peace within. May you trust God that you are exactly where you are meant to be. May you not forget the infinite possibilities that are born of faith. May you use those gifts that you have received and pass on the love that has been given to you. May you be content knowing you are a child of God.
+
+Let His presence settle into your bones and allow your soul the freedom to sing, dance, praise and love. It is there for each and every one of us. We only need to look within ourselves and see our dreams. Then begin the journey you were set upon this earth for. You will endure many crossroads only to find you will not always choose the right road. You may even get lost along the way. This is okay, as there are lessons to be learned with each road you take. Many of us will go through life repeating the same mistakes over and over again, going down that all too familiar road, then proclaim, &#8220;why me?&#8221; &#8220;Why does this keep happening to me?&#8221; It keeps happening because you are afraid of change. Afraid of the unfamiliar and that which is not comfortable. You are so caught up with your every day life you hushed your inner voice and forgot what was instilled in you from birth. Afraid to look into your heart and hear what your heart resonates with. Here you are at yet another crossroad. Once again fear arises. Fear is nothing more than a voice in your head. Once you recognize this you can neutralize fear by replacing it with knowledge and trust. Trust yourself. Don&#8217;t take the road of familiarity. Become bold and this time travel the road you had allowed yourself to venture off of. The road you thought would be too tough because it was new and you didn&#8217;t know where it would lead you. The road of dreams that you as an adult may have stopped dreaming of. Why? Because as a child you were told dreams were nothing more than dreams and in the real world dreams don&#8217;t come true. So you stopped dreaming, got an education, went to college, got a job, and became productive in society, working for someone else making them wealthy. You performed your 40 hour a week J.O.B. (just over broke) and you end up living in debt.
+
+In your heart there is a yearning. A burning desire to be more to do more and to have more. You held onto your faith and now the infinite possibilities that can become real with commitment and determination are yours. So dance the dance of freedom. Sing the song of love. See the beauty of life all around you and be thankful for the abundance that you have. For life isn&#8217;t about what you don&#8217;t have. Life is about being thankful for what you do have and assisting others in their quest for life. In this realization your search has brought you here for there are no accidents you were meant to be here. With clarity you can now stand up and say, &#8220;I choose today to give myself the best life ever and I&#8217;m starting now!&#8221;
