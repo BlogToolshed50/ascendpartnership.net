@@ -1,6 +1,7 @@
 ---
 title: Leading Brand Electric Guitar
 author: admin
+date: 2010-09-20T19:13:19+00:00
 layout: post
 categories:
   - General
