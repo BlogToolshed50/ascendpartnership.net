@@ -1,5 +1,6 @@
 ---
 title: Invest in Positive Possibilities
+date: 2010-09-20T18:13:19+00:00
 author: admin
 layout: post
 categories:
