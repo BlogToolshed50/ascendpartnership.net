@@ -1,5 +1,6 @@
 ---
 title: Drum Hardware Instruments
+date: 2010-09-08T18:13:19+00:00
 author: admin
 layout: post
 categories:
